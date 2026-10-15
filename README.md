@@ -1,2 +1,1 @@
-# simon-game
-dcdhjh
+PLAY AND ENJOY!!
